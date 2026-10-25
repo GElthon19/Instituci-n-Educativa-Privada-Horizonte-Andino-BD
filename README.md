@@ -1,1 +1,1 @@
-# Instituci-n-Educativa-Privada-Horizonte-Andino-BD
+# Institucion-Educativa-Privada-Horizonte-Andino-BD
